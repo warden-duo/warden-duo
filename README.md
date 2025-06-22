@@ -4,7 +4,7 @@
 
 #
 
-<p align="center"><img src="https://github.com/user-attachments/assets/78211836-033d-4709-945d-7e94c2a7a31e" width="300">
+<p align="center"><img src="https://github.com/user-attachments/assets/df22f63f-7ac6-4493-a3a7-dcce98963b0f" width="300">
 <p align="center"> OK SO JIMMY, he's not a canary cause his character in the au is based on empires 1 to kinda fit the au theme (ALSO SEABLINGSSS)
 <p align="center"> cause he's a half cod, he can breathe underwater (he also grows some scales when he goes underwater, like luca i think)
 <p align="center"> He goes out to visit Lizzie, ONLYY for him to stumble upon Joel and Etho on a boat talking to Liz, making everyone shocked / surprised
