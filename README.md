@@ -9,7 +9,7 @@
 <p align="center"><img src="https://github.com/user-attachments/assets/3ee63a37-3e0b-4371-9a29-c1884bb95e60" width="305">  <img src="https://github.com/user-attachments/assets/25a557a5-27d8-4897-bdcb-a59088905fb9" width="315">
 <p align="center">  wow boat boys mentioned, OKYA SO basically both of them met secretly when they were younger and as the time passed, they grew a habit of seeing eachother, sneaking out just too see their friend
 <p align="center">  To be nmore specific, since Joel is royalty, Etho would mostly go to his chamers and sneak him out of the castle just so they can hang out with eachother
-<p align="center">  the dialouge (thei names) is basically just an interaction of them before going out on the docks
+<p align="center">  the dialouge (their names) is basically just an interaction of them before going out on the docks
 <p align="center">  (ALSO SPOLIER KINDA???) During that night, Joel actually sailed on a small boat and got lost when he tried to come back, thatss when he met Lizzie :33 so she assisted him back to shore where Etho looked like he gave up looking for him. They literally hugged right after they spotted eachother only for Lizzie to splash them with the waves (after that encounter, everytime they would hang out at night, they would go to the waters to visit her, ALSOO THR REASON WHY ETHO AND JOEL WHERE THERE WHEN JIMMY WANTED TO SURPRISE  LIZZIE)
 
 #
