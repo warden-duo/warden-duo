@@ -13,6 +13,12 @@
 <p align="center">  (ALSO SPOLIER KINDA???) During that night, Joel actually sailed on a small boat and got lost when he tried to come back, thatss when he met Lizzie :33 so she assisted him back to shore where Etho looked like he gave up looking for him. They literally hugged right after they spotted eachother only for Lizzie to splash them with the waves (after that encounter, everytime they would hang out at night, they would go to the waters to visit her, ALSOO THR REASON WHY ETHO AND JOEL WHERE THERE WHEN JIMMY WANTED TO SURPRISE  LIZZIE)
 
 #
+<p align="center"><img src="https://github.com/user-attachments/assets/6f255de6-679c-4dbb-8a7a-5fd9264db24f" width="300">
+<p align="center"> its mentioned why Lizzies name is like that in my skin in the boat boys part so uhhh
+<p align="center"> for more backround context, her first encounter with joel was not when she helped him get back to shore, it was when the royals had anchored their ship to rest for the night. Joel had been looking at the moon, talking to himself abt something i still need to think about. He actually goes on a small boat to explore the waters but not too far off the boat. Lizzie was abt to pop out of the waters but she heard footsteps from the ship and quickly turned into a blue axolotl instead. Joel saw her axolotl form and wanted to take a good look at her, but soon enough, he heard shouting from the ship, signaling him to come back. 
+<p align="center"> NOW HERE WE AREE at their actual meeting. Joel literaally feels an attachment to the ocean waters cause bro this is the SECOND TIME he went exploring on a small boat, only this time he got lost. Lizzie was being silly in her axolotl form and saw Joel and heard his distress about getting back to shore. She decided that this is the time where she can show her true form to him, and as she did, they kinda just talked for a while until she mentioned that she can get him home. Once they were at the shore, where Etho was waiting, she sent water to splash them and was waiting for a thank you. After that encounter, she sumerged back to the seas but after a few minutes, she noticed that MARTYN?????? saw everythign (or maybe scott saw everything, or mean gills??????? idk)
+
+#
 
 <p align="center"><img src="https://github.com/user-attachments/assets/df22f63f-7ac6-4493-a3a7-dcce98963b0f" width="300">
 <p align="center"> OK SO JIMMY, he's not a canary cause his character in the au is based on empires 1 to kinda fit the au theme (ALSO SEABLINGSSS)
@@ -22,7 +28,7 @@
 
 #
 
-<p align="center"><img src="https://github.com/user-attachments/assets/5a5343da-61e7-4f48-8e36-082c8847f31c" width="330">  <img src="https://github.com/user-attachments/assets/0265c14d-aa3b-434c-9629-bcbc3a6d8f05" width="300">
+<p align="center"><img src="https://github.com/user-attachments/assets/5a5343da-61e7-4f48-8e36-082c8847f31c" width="330">  <img src="https://github.com/user-attachments/assets/0265c14d-aa3b-434c-9629-bcbc3a6d8f05" width="315">
 <p align="center"> soo desert duo in this au, basically their names are matching if that wasn;t obvious enough
 <p align="center"> for context of the names tho, scar goes hunting for food onland and he saw parrot wings and shot at them oNLY to hear screaming from grian,,, whoopsies,,,,
 <p align="center"> they started out as enemies before this event but they soon to be close friends (tho they still fight over the smallest things)
