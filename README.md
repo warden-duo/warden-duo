@@ -2,7 +2,7 @@
 
 <p align="center"> OK UHH since i love my au so much (and you're probably confused on why my au skins r named that) im gonna share some lore stuff explaning why their names r like that
 <p align="center"> me and atlas worked on the au and its STILL a wip so heh,,,, HIII ATLASSSSS
-<p align="center"> we literally made a gdocs abt this au sorting things out PLEASSEEEEEE (ALSO IM GONNA MAKE A STRAWPAGE ABT THIS AU SO IT CAN BE MORE ORGANIZED)
+<p align="center"> this is a rough explanation of all of their lore (if i had a general idea already) so if you dont wanna wait for me 2 write the actual chapter in strawpage, you can refer here
 
 #
 
