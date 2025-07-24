@@ -1,49 +1,33 @@
-## Au explanations (wip) 
+<p align="center"> Au explanations (wip) 
 
 <p align="center"> OK UHH since i love my au so much (and you're probably confused on why my au skins r named that) im gonna share some lore stuff explaning why their names r like that
 <p align="center"> me and atlas worked on the au and its STILL a wip so heh,,,, HIII ATLASSSSS
 <p align="center"> this is a rough explanation of all of their lore (if i had a general idea already) so if you dont wanna wait for me 2 write the actual chapter in strawpage, you can refer here
 
-#
-
-<p align="center"><img src="https://github.com/user-attachments/assets/3ee63a37-3e0b-4371-9a29-c1884bb95e60" width="305">  <img src="https://github.com/user-attachments/assets/25a557a5-27d8-4897-bdcb-a59088905fb9" width="315">
-<p align="center">  wow boat boys mentioned, OKYA SO basically both of them met secretly when they were younger and as the time passed, they grew a habit of seeing eachother, sneaking out just too see their friend
-<p align="center">  To be nmore specific, since Joel is royalty, Etho would mostly go to his chamers and sneak him out of the castle just so they can hang out with eachother
-<p align="center">  the dialouge (their names) is basically just an interaction of them before going out on the docks
-<p align="center">  (ALSO SPOLIER KINDA???) During that night, Joel actually sailed on a small boat and got lost when he tried to come back, thatss when he met Lizzie :33 so she assisted him back to shore where Etho looked like he gave up looking for him. They literally hugged right after they spotted eachother only for Lizzie to splash them with the waves (after that encounter, everytime they would hang out at night, they would go to the waters to visit her, ALSOO THR REASON WHY ETHO AND JOEL WHERE THERE WHEN JIMMY WANTED TO SURPRISE  LIZZIE)
+<p align="center"> edit as of 7/24/25 , im gonna update eVERYTHING since there's been some changes 2 names and lore and stuff (well not all) ALSO I HAVE NEW SKINSS YEAHHHH ok here we go
 
 #
-<p align="center"><img src="https://github.com/user-attachments/assets/6f255de6-679c-4dbb-8a7a-5fd9264db24f" width="300">
-<p align="center"> its mentioned why Lizzies name is like that in my skin in the boat boys part so uhhh
-<p align="center"> for more backround context, her first encounter with joel was not when she helped him get back to shore, it was when the royals had anchored their ship to rest for the night. Joel had been looking at the moon, talking to himself abt something i still need to think about. He actually goes on a small boat to explore the waters but not too far off the boat. Lizzie was abt to pop out of the waters but she heard footsteps from the ship and quickly turned into a blue axolotl instead. Joel saw her axolotl form and wanted to take a good look at her, but soon enough, he heard shouting from the ship, signaling him to come back. 
-<p align="center"> NOW HERE WE AREE at their actual meeting. Joel literaally feels an attachment to the ocean waters cause bro this is the SECOND TIME he went exploring on a small boat, only this time he got lost. Lizzie was being silly in her axolotl form and saw Joel and heard his distress about getting back to shore. She decided that this is the time where she can show her true form to him, and as she did, they kinda just talked for a while until she mentioned that she can get him home. Once they were at the shore, where Etho was waiting, she sent water to splash them and was waiting for a thank you. After that encounter, she sumerged back to the seas but after a few minutes, she noticed that MARTYN?????? saw everythign (or maybe scott saw everything, or mean gills??????? idk)
-<p align="center"><img src="https://github.com/user-attachments/assets/3f307dcb-99c8-472e-9662-c032692bc6b9" width="400">
-<p align="center"> i also like to imagine jizzie's first proper introduction would look something like this
+<p align="center"><img src="https://github.com/user-attachments/assets/eb965595-cc51-4849-b22b-91c049dfb587" width="320">  <img src="https://github.com/user-attachments/assets/5e2d1d2a-1d4c-4cf0-ba54-39c02b114c2e" width="305">
+
+<p align="center"> Context : Etho was working on a project for the shipwrights (gem,imp,and skizz) then Bdubs saw him and asked if he can help with renewing the tavern a bit, he refused leading to bdubs stealing the lanters Etho made (parts were hard to get cause it came with a set) so they chased eachother in the woods until it rained and they seeked shelter where they met Pearl. BigB also came around carrying the bag of lanterns Bdubs stole from Etho, turns out he dropped it while searching for a shelter.
+
+<p align="center"> This isint in any chapter yet nor is it done cause I made a bet with my friends that if school suspends due to the rain, I'd make a fanfic related to rain. WHICH I DID YAYYYYY (rain so bad that there was no classes for the whole week) The chapter will be avalable in the extras tab in the chapters page
+
 
 #
+<p align="center"><img src="https://github.com/user-attachments/assets/c6144c73-2f8e-4e78-bf9a-31b89b425aa6" width="320">  <img src="https://github.com/user-attachments/assets/f216dac3-d11a-4f96-a3d0-c36523d59851"" width="320">
 
-<p align="center"><img src="https://github.com/user-attachments/assets/df22f63f-7ac6-4493-a3a7-dcce98963b0f" width="300">
-<p align="center"> OK SO JIMMY, he's not a canary cause his character in the au is based on empires 1 to kinda fit the au theme (ALSO SEABLINGSSS)
-<p align="center"> cause he's a half cod, he can breathe underwater (he also grows some scales when he goes underwater, like luca i think)
-<p align="center"> He goes out to visit Lizzie, ONLYY for him to stumble upon Joel and Etho on a boat talking to Liz, making everyone shocked / surprised
-<p align="center"> (ranchers mentioned) also the fact that jimmy is trying 2 hide his ability to the public ESPECIALLY TO TANGO in this au, bUTTTTT Etho knows Tango personally through former partnerships so he's kinda scared that he would tell his partner in crime about it (even tho there had been so many hints that jimmy is a half water creature)
+<p align="center"> Context : This is how Martyn and Ren first interacted with eachother, listen to the song "Broken mast bay" by sail north to find out how their story goes idk /nf But basically Ren get out of the tavern ater starting a fight (scar and grian cause it but mainly scar) and he went out on the sea to find peace, then he met Martyn
 
-#
-
-<p align="center"><img src="https://github.com/user-attachments/assets/5a5343da-61e7-4f48-8e36-082c8847f31c" width="330">  <img src="https://github.com/user-attachments/assets/0265c14d-aa3b-434c-9629-bcbc3a6d8f05" width="315">
-<p align="center"> soo desert duo in this au, basically their names are matching if that wasn;t obvious enough
-<p align="center"> for context of the names tho, scar goes hunting for food onland and he saw parrot wings and shot at them oNLY to hear screaming from grian,,, whoopsies,,,,
-<p align="center"> they started out as enemies before this event but they soon to be close friends (tho they still fight over the smallest things)
-<p align="center">  GRIANS DESIGN IS STILL A WIP CAUSE BLOODY HELL I CANT MAKE / FIND A GOOD REFERENCE
+<p align="center"> Also when I write their chapter, I'm gonna refrence some lines of the song so tehee , ALSO ANOTHER SIDE NOTE, the au was soley centered on them, making it a treebark au bUT NOOO, I WANTED OTHER LIVES PLAYING IN THR BACKROUND so nOW ITS A LIFE SERIES (so far) AU
 
 #
-<p align="center"><img src="https://github.com/user-attachments/assets/c1b9c710-9ab5-4bc0-8b0f-22e40a26f97c" width="315">  <img src="https://github.com/user-attachments/assets/0adecd43-6135-48c9-8904-f5c08607eed8" width="300">
-<p align="center">  these two. fun fact!!!! the au was supposed to be centered arond them, making it SOLEY a renchanting au, but NOOOOOO i deecided that i want other people to have their lives play in  the backround as well,,,, GREATT
-<p align="center">  their names are kinda matching?? these are actually lyrics to a song by sail north (broken mast bay, LISTEN 2 IT ITS SO GOOD /NF) and that song is basically explains how they met but with some extra stuff idk, but spoilers for the song,,,, martyn basically becomes human later SOOO i still need to make his skin for that WAHOOOOO MORE WORK 2 BE DONE BEFORE I GO TO SCH**L!!!11!!!!
+<p align="center"><img src="https://github.com/user-attachments/assets/523f0a00-f1cb-433b-b181-2e62830041a3" width="320">  <img src="https://github.com/user-attachments/assets/795a8819-a799-48e5-83dc-70401df4d4d1" width="340">
+
+<p align="center"> Context?? : I decided they would be frolicking in the fields most of the time and not that much at the bay cause uhmm why not, i need to add yaelokre music in the au soMEHOW?????   Lore wip but their dynamic is based on cole and clementine (not romantic but its your opinion tbh)
 
 #
-## EXTRA
-<p align="center"> i mostly make au skins with another character so they'd have matching names related to what ever dialouge they had with eachother, this section is here cause i make skins SO SLOW 
-<p align="center"><img src="https://github.com/user-attachments/assets/f8ca7fb6-6880-461e-be01-3729b0771f91" width="300">
-<p align="center">  to be honest,,,, idk any lore i can give to himm,,,, i mean he used to work alongside team ties as a temporary partnership BUT they still have good contact with eachother, even have matching charms to remember those times, Tango used to have it on his goggles but now has it around his waist/chain, Impulse has his around one of his horns, Etho wears it as a necklace, and Skizz wears it as a bracelet
-<p align="center">  ADDING TO THATT, he, skizz, and gem own a company of some sorts / shipwrights to be specific + they also have good contact with desert duo and would often work along side with them (GIGGS MENTIONED LETS GOOO)
+<p align="center"> rest is a wipp
+
+
+
