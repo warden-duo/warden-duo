@@ -6,6 +6,8 @@
 
 <p align="center"> edit as of 7/24/25 , im gonna update eVERYTHING since there's been some changes 2 names and lore and stuff (well not all) ALSO I HAVE NEW SKINSS YEAHHHH ok here we go
 
+<p align="center"> edit as of 3/20/26 , ok this is SO OLD but because i stopped this au because of school (and school is done for me) im bringing this back... yes im rewriting the WHOLE thing but i'll try to keep some of the elements from the old one. also YES im gonna draw the scenes properly and yes im gonna keep the explanations in this read me for now
+
 #
 <p align="center"><img src="https://github.com/user-attachments/assets/eb965595-cc51-4849-b22b-91c049dfb587" width="320">  <img src="https://github.com/user-attachments/assets/5e2d1d2a-1d4c-4cf0-ba54-39c02b114c2e" width="305">
 
