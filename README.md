@@ -1,8 +1,10 @@
 HIII i'll be updating this readme as MUCH AS I CANN !!!!! Since I'll be rewriting the au I'm gonna update this with my progress ^^
-<p> Ocean's calling is like 57% done... dont throw tomatoes at me
-<p> <img width="600"alt="image" src="https://github.com/user-attachments/assets/c1da9830-d717-4fcc-8c81-85a48436efc3" />
-<p> also heres the 1st drawing YEAHHHH
-<p><img width="600"alt="image" src="https://github.com/user-attachments/assets/7da23a4b-d4f5-4df7-bad8-9efc66281df7" />
+<p> Ocean's calling rmk is like 62% done... dont throw tomatoes at me
+<p> <img width="700" alt="image" src="https://github.com/user-attachments/assets/a24b3a8f-8c3b-4da1-8ca3-d4a729b99fd6" />
+
+<p> blue axolotl in the ocean btw
+<p><img width="620" height="487" alt="image" src="https://github.com/user-attachments/assets/79784a1a-e538-41bb-8b7f-27fcc54adff0" />
+
 
 
 
